@@ -1,1 +1,1 @@
-# br.com.A2academia
+# A2academia
